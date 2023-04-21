@@ -1,5 +1,7 @@
 - 👋 Hi, I’m @optimuscreed1
-- 👀 I’m interested in becoming a better and  software engineer.
+💯 God number one.
+- 👀 I’m becoming a better person everyday because I am learning every moment of the day. 
+🥇 I am into software engineering.
  Am also an enthusiastic farmer who wants to use IT tools to revolutionalize agricultural food production in Africa and the world.
 Am a Sociologist by profession.
 An Athlete.
