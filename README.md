@@ -1,11 +1,11 @@
-- 👋 Hi, I’m @optimuscreed1
-💯 God number one.
-- 👀 I’m becoming a better person everyday because I am learning every moment of the day. 
-🥇 I am into software engineering.
- Am also an enthusiastic farmer who wants to use IT tools to revolutionalize agricultural food production in Africa and the world.
-Am a Sociologist by profession.
-An Athlete.
-A social worker.
+# - 👋 Hi, I’m @optimuscreed1
+# 💯 God number one.
+# - 👀 I’m becoming a better person everyday because I am learning every moment of the day. 
+# 🥇 I am into software engineering.
+# Am also an enthusiastic farmer who wants to use IT tools to revolutionalize agricultural food production in Africa and the world.
+# Am a Sociologist by profession.
+# An Athlete.
+# A social worker.
 - 🌱 I’m currently learning ... Learning software engineering and hydroponics farming
 - 💞️ I’m looking to collaborate on ... Great projects that are problem solving and transformational idea
 - 📫 How to reach me ... seunmosesbalogun.14@gmail.com, mosesseunbalogun@gmail.com 
