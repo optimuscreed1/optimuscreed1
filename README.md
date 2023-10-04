@@ -1,4 +1,4 @@
-# - 👋 Hi, I’m @optimuscreed1
+q# - 👋 Hi, I’m @optimuscreed1
 # 💯 God number one.
 # - 👀 I’m becoming a better person everyday because I am learning every moment of the day. 
 # 🥇 I am into software engineering.
